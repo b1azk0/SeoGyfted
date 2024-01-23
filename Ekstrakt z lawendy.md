@@ -1,0 +1,3 @@
+# [Ekstrakt z lawendy](https://zielonelaboratorium.pl/składniki/ekstrakt-z-lawendy/)
+
+Ekstrakt z lawendy to jeden z najbardziej cenionych składników w kosmetyce naturalnej. Działa kojąco na skórę i zmysły, dzięki czemu znajduje zastosowanie w wielu produktach do pielęgnacji ciała i włosów. Jeśli szukasz sprawdzonej jakości ekstraktu z lawendy, koniecznie odwiedź stronę Zielone Laboratorium. Tam znajdziesz ekstrakt najwyższej jakości, pozyskiwany z naturalnych surowców. Sprawdź już teraz: https://zielonelaboratorium.pl/składniki/ekstrakt-z-lawendy/.

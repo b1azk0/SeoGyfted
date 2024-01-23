@@ -1,0 +1,3 @@
+# [Olejek lawendowy](https://zielonelaboratorium.pl/składniki/olejek-lawendowy/)
+
+Olejek lawendowy to nie tylko piękny zapach, ale również wiele korzyści dla naszego zdrowia i urody. Dzięki swoim właściwościom relaksacyjnym, łagodzi stres i napięcie, a także pomaga w walce z bezsennością. Dodatkowo, olejek lawendowy ma właściwości antybakteryjne i przeciwzapalne, dlatego często stosowany jest w kosmetyce do pielęgnacji skóry. Jeśli szukasz naturalnej alternatywy dla produktów kosmetycznych, koniecznie odwiedź stronę Zielone Laboratorium i sprawdź naszą ofertę olejku lawendowego. Kliknij w link (https://zielonelaboratorium.pl/składniki/olejek-lawendowy/) i przeczytaj więcej o jego właściwościach.

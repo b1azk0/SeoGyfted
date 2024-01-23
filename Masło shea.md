@@ -1,0 +1,3 @@
+# [Masło shea](https://zielonelaboratorium.pl/składniki/maslo-shea/)
+
+Masło shea to naturalny składnik o wielu korzystnych właściwościach dla skóry. Jeśli zależy Ci na zdrowym wyglądzie i pielęgnacji ciała, koniecznie wypróbuj kosmetyki z dodatkiem tego składnika. Na stronie Zielone Laboratorium znajdziesz wiele produktów, które zawierają masło shea, w tym kremy, balsamy i mydła. Dowiedz się więcej o jego właściwościach i skorzystaj z naszej oferty już dziś! Sprawdź naszą stronę o masle shea: https://zielonelaboratorium.pl/składniki/maslo-shea/

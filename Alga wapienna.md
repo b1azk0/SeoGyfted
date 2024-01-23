@@ -1,0 +1,3 @@
+# [Alga wapienna](https://zielonelaboratorium.pl/składniki/alga-wapienna/)
+
+Alga wapienna to naturalny składnik, który może znacznie zwiększyć skuteczność Twojej suplementacji diety. Dzięki wysokiej zawartości wapnia, jest idealnym rozwiązaniem dla osób, które chcą zadbać o zdrowe i mocne kości. Dodatkowo, alga wapienna wpływa korzystnie na funkcjonowanie układu nerwowego oraz układu krążenia. Jeśli chcesz poznać więcej informacji na temat właściwości alg wapiennych, zapraszamy do odwiedzenia strony Zielone Laboratorium, gdzie znajdziesz produkty zawierające ten naturalny składnik. Kliknij tutaj, aby dowiedzieć się więcej: https://zielonelaboratorium.pl/składniki/alga-wapienna/

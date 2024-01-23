@@ -1,0 +1,3 @@
+# [Alantoina](https://zielonelaboratorium.pl/składniki/alantoina/)
+
+Alantoina - składnik, który dzięki swoim właściwościom kojącym i regeneracyjnym, coraz częściej pojawia się w kosmetykach i środkach do pielęgnacji skóry. Jeśli chcesz dowiedzieć się więcej na temat tego składnika, zapraszamy na stronę Zielone Laboratorium, gdzie znajdziesz szczegółowe informacje na temat właściwości alantoiny oraz jej zastosowania w kosmetykach.   (https://zielonelaboratorium.pl/składniki/alantoina/)

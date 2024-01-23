@@ -1,0 +1,3 @@
+# [Kofeina](https://zielonelaboratorium.pl/składniki/kofeina/)
+
+Szukasz wiedzy na temat kofeiny i chcesz dowiedzieć się, jak wpływa ona na Twój organizm? Odwiedź stronę Zielone Laboratorium, gdzie znajdziesz wiele cennych informacji na temat składników odżywczych, w tym właśnie kofeiny. Na naszej stronie dowiesz się między innymi, jakie są pozytywne i negatywne skutki picia kawy, jakie są dawki kofeiny zalecane dla różnych grup wiekowych i jakie produkty zawierają ten składnik. Sprawdź już teraz: https://zielonelaboratorium.pl/składniki/kofeina/

@@ -1,0 +1,3 @@
+# [Ekstrakt z lnu](https://zielonelaboratorium.pl/składniki/ekstrakt-z-lnu/)
+
+Jeśli szukasz naturalnego suplementu diety o wysokiej wartości odżywczej, to koniecznie odwiedź naszą stronę poświęconą ekstraktowi z lnu! Nasz produkt pochodzi z naturalnych źródeł i jest bogaty w niezbędne dla organizmu kwasy tłuszczowe omega-3 i omega-6. Dzięki temu wspomaga on ochronę układu sercowo-naczyniowego, poprawia koncentrację, a także ma pozytywny wpływ na skórę, włosy i paznokcie. Dowiedz się więcej na temat właściwości ekstraktu z lnu i zamów już dziś na stronie https://zielonelaboratorium.pl/składniki/ekstrakt-z-lnu/.

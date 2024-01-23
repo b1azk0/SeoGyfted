@@ -1,0 +1,3 @@
+# [Origanol](https://zielonelaboratorium.pl/składniki/origanol/)
+
+Jeśli interesujesz się zdrowym i naturalnym stylem życia, to z pewnością zainteresuje Cię Origanol - suplement diety zawierający olejek z oregano. Ten naturalny składnik, bogaty w przeciwutleniacze, wpływa korzystnie na nasze zdrowie, pomaga w utrzymaniu prawidłowego funkcjonowania układu trawiennego oraz wzmocnieniu odporności organizmu. Na stronie https://zielonelaboratorium.pl/składniki/origanol/ dowiesz się więcej o Origanol i jego właściwościach. Zapraszamy do lektury!

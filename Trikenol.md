@@ -1,0 +1,3 @@
+# [Trikenol](https://zielonelaboratorium.pl/składniki/trikenol/)
+
+Trikenol to rewolucyjny suplement diety, który pomaga w walce z łysieniem i wypadaniem włosów. Dzięki unikalnej formule składników aktywnych, Trikenol działa na trzy poziomy: wzmacnia cebulki włosowe, hamuje proces wypadania oraz stymuluje ich odrost. Dzięki regularnemu stosowaniu Trikenolu, Twoje włosy staną się mocniejsze, grubsze i gęstsze. Sprawdź już dziś, jak działają składniki Trikenolu na Twoje włosy i zamów go na https://zielonelaboratorium.pl/składniki/trikenol/.

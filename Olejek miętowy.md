@@ -1,0 +1,3 @@
+# [Olejek miętowy](https://zielonelaboratorium.pl/składniki/olejek-mietowy/)
+
+Olejek miętowy to jeden z najbardziej popularnych i wszechstronnych olejków eterycznych, który z powodzeniem może znaleźć zastosowanie w wielu dziedzinach. Dzięki swoim właściwościom odświeżającym i orzeźwiającym, olejek miętowy jest idealny dla osób, które chcą poprawić nastrój, zwiększyć koncentrację lub po prostu odprężyć się po ciężkim dniu. Jeśli szukasz najwyższej jakości olejku miętowego, koniecznie odwiedź naszą stronę Zielone Laboratorium, gdzie znajdziesz szeroki wybór produktów pochodzących tylko od najlepszych producentów. Zapraszamy na: https://zielonelaboratorium.pl/składniki/olejek-mietowy/

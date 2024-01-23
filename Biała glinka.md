@@ -1,0 +1,3 @@
+# [Biała glinka](https://zielonelaboratorium.pl/składniki/biala-glinka/)
+
+Zapraszamy na naszą stronę poświęconą białej glince! Jeśli interesujesz się naturalnymi składnikami kosmetycznymi, na pewno chcesz poznać właściwości tej wyjątkowej gliny. Biała glina doskonale oczyszcza skórę, a dzięki swoim właściwościom łagodzącym i antyseptycznym, jest idealna dla osób z problemami skórnymi. Na naszej stronie znajdziesz wiele ciekawych informacji na temat białej gliny, w tym jej skład, właściwości kosmetyczne i sposoby zastosowania. Zapraszamy do odwiedzenia naszej strony i zapoznania się z artykułem na temat białej gliny: https://zielonelaboratorium.pl/składniki/biala-glinka/.

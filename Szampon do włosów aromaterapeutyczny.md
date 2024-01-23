@@ -1,0 +1,3 @@
+# [Szampon do włosów aromaterapeutyczny](https://zielonelaboratorium.pl/produkt/szampon-aromaterapeutyczny-olejki-eteryczne-250-ml/)
+
+Jeśli szukasz szamponu, który oprócz mycia włosów, zadba także o Twoje samopoczucie i relaks, to nasz aromaterapeutyczny szampon jest idealnym wyborem! Dzięki zawartości olejków eterycznych o właściwościach relaksacyjnych, każde mycie włosów stanie się dla Ciebie chwilą odpoczynku po ciężkim dniu. Ponadto, szampon jest w 100% naturalny, co sprawia, że jest łagodny dla skóry głowy i włosów. Zapraszamy do zapoznania się z naszą ofertą na https://zielonelaboratorium.pl/produkt/szampon-aromaterapeutyczny-olejki-eteryczne-250-ml/ i wypróbowania tego wspaniałego produktu!

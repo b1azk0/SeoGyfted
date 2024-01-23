@@ -1,0 +1,3 @@
+# [Czy mikroplastik w kosmetykach jest szkodliwy?](https://zielonelaboratorium.pl/blog/czy-mikroplastik-w-kosmetykach-jest-szkodliwy/)
+
+Czy wiesz, co zawierają Twoje kosmetyki? Czy wiesz, że wiele z nich może zawierać mikroplastik? Co to oznacza dla Twojego zdrowia i dla środowiska? Na naszej stronie, https://zielonelaboratorium.pl/blog/czy-mikroplastik-w-kosmetykach-jest-szkodliwy/, dowiesz się wszystkiego, co powinieneś wiedzieć na temat mikroplastiku w kosmetykach i wszelkich szkód, jakie może on wyrządzić. Zapoznaj się z naszymi artykułami i dowiedz się, jak wybierać kosmetyki, które nie szkodzą Twojemu zdrowiu ani środowisku. Nie czekaj - odwiedź naszą stronę już teraz!

@@ -1,0 +1,3 @@
+# [Olejek geraniowy](https://zielonelaboratorium.pl/składniki/olejek-geraniowy/)
+
+Jeśli szukasz naturalnego i skutecznego sposobu na pielęgnację swojej skóry, to olejek geraniowy jest idealnym rozwiązaniem dla Ciebie. Olejek ten jest bogaty w antyoksydanty oraz ma właściwości przeciwzapalne i antybakteryjne. Możesz go stosować jako dodatek do kosmetyków lub bezpośrednio na skórę. Na stronie Zielone Laboratorium znajdziesz dokładny opis właściwości olejku geraniowego oraz wiele innych naturalnych składników do pielęgnacji ciała i włosów. Sprawdź naszą ofertę już teraz, klikając na link: https://zielonelaboratorium.pl/składniki/olejek-geraniowy/.

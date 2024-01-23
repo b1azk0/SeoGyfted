@@ -1,0 +1,3 @@
+# [Woda miętowa](https://zielonelaboratorium.pl/składniki/woda-mietowa/)
+
+Szukasz sposobu na urozmaicenie swojej diety i dodanie odrobiny świeżości do swojego codziennego menu? Spróbuj wody miętowej! Nie tylko orzeźwi Cię i pobudzi, ale także przyniesie wiele korzyści dla Twojego organizmu. Woda miętowa znana jest ze swoich właściwości antyoksydacyjnych, przeciwzapalnych i przeciwstarzeniowych. Co więcej, pomaga w trawieniu i łagodzi bóle żołądka. Sprawdź już teraz przepis na wodę miętową na ZieloneLaboratorium.pl i zacznij cieszyć się jej korzyściami!

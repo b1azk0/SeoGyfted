@@ -1,0 +1,3 @@
+# [Kosmetyki nietestowane na zwierzętach](https://zielonelaboratorium.pl/kosmetyki-nie-testowane-na-zwierzetach/)
+
+Jeśli zależy Ci na tym, aby Twoje kosmetyki były w pełni etyczne i nie szkodziły zwierzętom, to ta strona jest dla Ciebie! Na Zielonym Laboratorium znajdziesz szeroki wybór kosmetyków nietestowanych na zwierzętach, które są zarówno skuteczne, jak i bezpieczne dla Ciebie i Twojego środowiska. Ciesz się pięknem, jednocześnie dbając o dobro zwierząt! Zachęcamy do zapoznania się z naszą ofertą na stronie: https://zielonelaboratorium.pl/kosmetyki-nie-testowane-na-zwierzetach/.

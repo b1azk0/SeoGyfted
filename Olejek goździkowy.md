@@ -1,0 +1,3 @@
+# [Olejek goździkowy](https://zielonelaboratorium.pl/składniki/olejek-gozdzikowy/)
+
+Olejek goździkowy to produkt, który może stać się niezastąpionym elementem Twojej pielęgnacji. Posiada właściwości antybakteryjne, antyseptyczne, przeciwzapalne oraz przeciwbólowe. Świetnie sprawdzi się w pielęgnacji cery trądzikowej, a także w leczeniu bólu zęba czy bólu mięśni. W naszym sklepie internetowym Zielone Laboratorium znajdziesz wysokiej jakości olejek goździkowy. Dzięki jego regularnemu stosowaniu Twoja skóra będzie wyraźnie oczyszczona i odżywiona. Zapraszamy do zakupu na stronie https://zielonelaboratorium.pl/składniki/olejek-gozdzikowy/.

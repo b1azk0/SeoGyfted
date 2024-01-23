@@ -1,0 +1,3 @@
+# [Olejek lemongrassowy](https://zielonelaboratorium.pl/składniki/olejek-lemongrassowy/)
+
+Olejek lemongrassowy to naturalny sposób na poprawę samopoczucia i relaks po ciężkim dniu. Dodanie kilku kropel do kąpieli, aromatyzacja domowych kosmetyków czy inhalacja zapachowa - to tylko niektóre z zastosowań tego wyjątkowego olejku. Warto jednak pamiętać, by wybierać produkty wysokiej jakości, nie zawierające sztucznych dodatków. Na stronie Zielone Laboratorium znajdziesz wiele cennych informacji na temat olejku lemongrassowego, a także możliwość zakupu sprawdzonych produktów. Zapraszamy do odwiedzenia naszej strony i zapoznania się z ofertą: https://zielonelaboratorium.pl/składniki/olejek-lemongrassowy/

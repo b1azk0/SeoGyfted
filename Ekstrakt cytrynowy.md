@@ -1,0 +1,3 @@
+# [Ekstrakt cytrynowy](https://zielonelaboratorium.pl/składniki/ekstrakt-cytrynowy/)
+
+Jeśli szukasz naturalnego źródła witaminy C i innych cennych składników, to ekstrakt cytrynowy jest dla Ciebie idealnym rozwiązaniem! Na stronie Zielonego Laboratorium znajdziesz więcej informacji na temat właściwości i zastosowań tego wspaniałego składnika. Ekstrakt cytrynowy to nie tylko doskonały dodatek do potraw i napojów, ale również skuteczna broń w walce z przeziębieniami i wzmacniający układ odpornościowy. Sprawdź już teraz, jakie korzyści płyną z regularnego stosowania ekstraktu cytrynowego i zamów swoje opakowanie na stronie https://zielonelaboratorium.pl/składniki/ekstrakt-cytrynowy/.

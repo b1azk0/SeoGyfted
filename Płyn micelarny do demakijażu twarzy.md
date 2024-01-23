@@ -1,0 +1,3 @@
+# [Płyn micelarny do demakijażu twarzy](https://zielonelaboratorium.pl/produkt/plyn-micelarny-do-demakijazu-twarzy-woda-mietowa-150-ml/)
+
+Zapraszamy do zapoznania się z naszym rewelacyjnym produktem - płynem micelarnym do demakijażu twarzy! Nasz produkt to idealne rozwiązanie dla każdej kobiety, która chce dokładnie usunąć makijaż ze swojej twarzy, bez szkodzenia skórze. Płyn micelarny jest łagodny dla skóry, a jednocześnie bardzo skuteczny w usuwaniu zanieczyszczeń. Dodatkowo, nasz produkt zawiera wodę miętową, która działa kojąco i odświeżająco na skórę. Nie czekaj dłużej i wypróbuj nasz płyn micelarny już dziś! Możesz go nabyć pod poniższym linkiem: https://zielonelaboratorium.pl/produkt/plyn-micelarny-do-demakijazu-twarzy-woda-mietowa-150-ml/

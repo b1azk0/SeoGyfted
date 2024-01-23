@@ -1,0 +1,3 @@
+# [Masło kakaowe](https://zielonelaboratorium.pl/składniki/maslo-kakaowe/)
+
+Masło kakaowe to nie tylko pyszny dodatek do koktajli czy deserów, ale również składnik, który ma wiele zalet dla Twojego zdrowia. Nasza strona zawiera wiele cennych informacji o tym produkcie, w tym o jego właściwościach pielęgnacyjnych oraz zdrowotnych. Na naszej stronie znajdziesz również przepisy na zdrowe desery z masłem kakaowym oraz porady, jak wykorzystać ten składnik w codziennej diecie. Dlatego też zapraszamy do odwiedzenia naszej strony i poznania wszystkich zalet, jakie daje masło kakaowe! Kliknij tutaj, aby uzyskać więcej informacji: https://zielonelaboratorium.pl/składniki/maslo-kakaowe/

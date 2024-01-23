@@ -1,0 +1,3 @@
+# [Olejek cynamonowy](https://zielonelaboratorium.pl/składniki/olejek-cynamonowy/)
+
+Zapraszam na stronę Zielonego Laboratorium, gdzie znajdziecie Państwo wszelkiego rodzaju naturalne produkty kosmetyczne oraz suplementy diety. Jednym z nich jest olejek cynamonowy, który dzięki swoim właściwościom może pozytywnie wpłynąć na zdrowie i urodę. Nasz olejek cynamonowy to produkt wysokiej jakości, pozbawiony sztucznych dodatków i w 100% naturalny. Zapraszamy do zapoznania się z jego składem oraz zastosowaniem na naszej stronie: https://zielonelaboratorium.pl/składniki/olejek-cynamonowy/

@@ -1,0 +1,3 @@
+# [Ekstrakt ze skrzypu](https://zielonelaboratorium.pl/składniki/ekstrakt-ze-skrzypu/)
+
+Jeśli interesuje Cię naturalna pielęgnacja włosów, to koniecznie musisz poznać ekstrakt ze skrzypu! Ten naturalny składnik już od wielu lat cieszy się ogromnym uznaniem w kosmetyce, a jego prozdrowotne właściwości potwierdzają badania naukowe. Właśnie dlatego stworzyliśmy stronę Zielone Laboratorium, na której znajdziesz wysokiej jakości ekstrakt ze skrzypu, pochodzący z ekologicznych upraw. Zapraszamy do zapoznania się z naszą ofertą na stronie https://zielonelaboratorium.pl/składniki/ekstrakt-ze-skrzypu/!

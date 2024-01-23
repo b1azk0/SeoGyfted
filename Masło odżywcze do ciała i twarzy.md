@@ -1,0 +1,3 @@
+# [Masło odżywcze do ciała i twarzy](https://zielonelaboratorium.pl/produkt/odzywcze-maslo-do-ciala-jablko-i-lawenda-250-ml/comment-page-1/#comment-4497)
+
+Zachęcamy do wypróbowania naszego odżywczego masła do ciała i twarzy, które odżywi Twoją skórę i sprawi, że będzie ona miękka i gładka w dotyku. Wyprodukowane z naturalnych składników, w tym jabłka i lawendy, nasze masło zapewni Twojej skórze odpowiednią pielęgnację. Dodatkowo, dzięki połączeniu dobroczynnych właściwości jabłka i lawendy, zapach masła działa kojąco na zmysły. Zapraszamy do zakupu naszego produktu na stronie https://zielonelaboratorium.pl/produkt/odzywcze-maslo-do-ciala-jablko-i-lawenda-250-ml/comment-page-1/#comment-4497.

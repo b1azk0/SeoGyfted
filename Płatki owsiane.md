@@ -1,0 +1,3 @@
+# [Płatki owsiane](https://zielonelaboratorium.pl/składniki/platki-owsiane/)
+
+Szukasz zdrowego i pożywnego śniadania? Spróbuj naszych płatków owsianych! To idealna propozycja dla osób ceniących zdrowy styl życia. Nasze płatki owsiane są naturalne, bez dodatków sztucznych substancji, nie zawierają cukru ani innych substancji słodzących. Są źródłem błonnika, witamin i minerałów, co wpływa korzystnie na zdrowie i samopoczucie. Zamów już dziś na https://zielonelaboratorium.pl/składniki/platki-owsiane/ i ciesz się smakiem i wartościami odżywczymi naszych płatków owsianych!

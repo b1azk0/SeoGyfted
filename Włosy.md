@@ -1,0 +1,3 @@
+# [Włosy](https://zielonelaboratorium.pl/sklep/wlosy/)
+
+Jeśli zależy Ci na pięknych i zdrowych włosach, to nasza strona jest właśnie dla Ciebie! Włosy to temat, który interesuje zarówno kobiety, jak i mężczyzn. Dlatego przygotowaliśmy dla Ciebie wiele porad i wskazówek na temat pielęgnacji włosów, a także recenzje kosmetyków i akcesoriów do ich stylizacji. Na naszej stronie znajdziesz również link do sklepu Zielone Laboratorium, gdzie możesz kupić naturalne kosmetyki do włosów, które będą doskonale współgrać z Twoim ciałem i środowiskiem. Przekonaj się już dzisiaj, że piękne włosy to nie tylko marzenie!

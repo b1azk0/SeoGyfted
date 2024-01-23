@@ -1,0 +1,3 @@
+# [Wegańskie kosmetyki do ciała](https://zielonelaboratorium.pl/sklep/cialo/)
+
+Jeśli szukasz naturalnych i wegańskich kosmetyków do pielęgnacji swojego ciała, to ta strona jest dla Ciebie! Zielone Laboratorium oferuje szeroki wybór produktów, które są przyjazne dla skóry i przyrody. Wszystkie kosmetyki są stworzone na bazie naturalnych składników, bez szkodliwych substancji chemicznych. W naszym sklepie znajdziesz kosmetyki do pielęgnacji twarzy, ciała, włosów oraz do higieny intymnej. Zapraszamy do zapoznania się z pełną ofertą: https://zielonelaboratorium.pl/sklep/cialo/

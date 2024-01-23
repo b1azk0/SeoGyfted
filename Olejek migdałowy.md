@@ -1,0 +1,3 @@
+# [Olejek migdałowy](https://zielonelaboratorium.pl/składniki/olejek-migdalowy/)
+
+Jeśli poszukujesz naturalnego olejku, który zadba o Twoją skórę i włosy, koniecznie odwiedź naszą stronę o olejku migdałowym! Olejek ten jest bogaty w witaminy A, B i E oraz w składniki mineralne, dlatego doskonale nawilża, regeneruje i odżywia. Możesz stosować go jako kosmetyk do twarzy, ciała i włosów, a także jako składnik domowych maseczek i peelingu. W naszym sklepie internetowym oferujemy wysokiej jakości olejek migdałowy, który z pewnością spełni Twoje oczekiwania. Zapraszamy do zakupów na ZieloneLaboratorium.pl!

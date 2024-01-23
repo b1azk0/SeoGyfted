@@ -1,0 +1,3 @@
+# [Olejek cytrynowy](https://zielonelaboratorium.pl/składniki/olejek-cytrynowy/)
+
+Olejek cytrynowy to naturalny produkt, który ma wiele właściwości leczniczych i aromatycznych. Jeśli chcesz pozbyć się nieprzyjemnych zapachów z domu lub schłodzić swoje ciało podczas upalnych dni, olejek cytrynowy będzie idealnym rozwiązaniem dla Ciebie. Dodatkowo, olejek cytrynowy jest także doskonałym składnikiem do kosmetyków, ponieważ posiada właściwości przeciwzapalne i antybakteryjne. Sprawdź, jakie jeszcze korzyści niesie ze sobą olejek cytrynowy na stronie Zielone Laboratorium (https://zielonelaboratorium.pl/składniki/olejek-cytrynowy/) i przekonaj się, jak łatwo możesz wkomponować go w swoją codzienną rutynę pielęgnacyjną!

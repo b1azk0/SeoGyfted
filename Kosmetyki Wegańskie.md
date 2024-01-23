@@ -1,0 +1,3 @@
+# [Kosmetyki Wegańskie](https://zielonelaboratorium.pl/sklep/)
+
+Zapraszamy do zapoznania się z naszą stroną poświęconą kosmetykom wegańskim! W naszym sklepie online znajdziesz szeroki wybór produktów, które nie zawierają składników pochodzenia zwierzęcego. Nasze kosmetyki są bezpieczne i skuteczne, a przy tym przyjazne dla środowiska. W ofercie posiadamy kremy, szampony, odżywki, a także wiele innych produktów do pielęgnacji ciała i włosów. Zapraszamy do odwiedzenia naszego sklepu online - https://zielonelaboratorium.pl/sklep/.

@@ -1,0 +1,3 @@
+# [Olej sezamowy](https://zielonelaboratorium.pl/składniki/olej-sezamowy/)
+
+Jeśli szukasz wartościowego źródła zdrowia i składników odżywczych, to olej sezamowy jest dla Ciebie. Wieloletnie badania dowodzą, że olej sezamowy jest bogaty w zdrowe tłuszcze, witaminy i minerały. Skorzystaj z naszej strony, aby dowiedzieć się więcej o korzyściach wynikających z jego stosowania i jakie produkty można przygotować z jego dodatkiem. Sprawdź nasz artykuł na temat oleju sezamowego na stronie https://zielonelaboratorium.pl/składniki/olej-sezamowy/ i przekonaj się, jak łatwo wprowadzić go do swojej diety.

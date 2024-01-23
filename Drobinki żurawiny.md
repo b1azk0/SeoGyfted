@@ -1,0 +1,3 @@
+# [Drobinki żurawiny](https://zielonelaboratorium.pl/składniki/drobinki-zurawiny/)
+
+Drobinki żurawiny to składnik, który powinien być obecny w diecie każdego z nas. Ich właściwości prozdrowotne są nieocenione - pomagają zwalczać zakażenia układu moczowego, wzmacniają odporność organizmu oraz wpływają korzystnie na trawienie. Jeśli chcesz dowiedzieć się więcej o drobinkach żurawiny oraz dowiedzieć się, w jakich produktach można je znaleźć, koniecznie odwiedź naszą stronę Zielone Laboratorium. Zapraszamy do zapoznania się z naszym artykułem: https://zielonelaboratorium.pl/składniki/drobinki-zurawiny/

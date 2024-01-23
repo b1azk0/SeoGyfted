@@ -1,0 +1,3 @@
+# [Pantenol](https://zielonelaboratorium.pl/składniki/pantenol/)
+
+Pantenol to niezwykle popularny składnik kosmetyczny, znany ze swoich pielęgnacyjnych właściwości. Jeśli chcesz dowiedzieć się więcej na jego temat, zajrzyj na stronę Zielone Laboratorium, gdzie znajdziesz wiele ciekawych informacji na temat tego składnika. Pantenol to związek, który wykazuje właściwości nawilżające, łagodzące, przeciwzapalne i regenerujące skórę. Dzięki niemu Twoja skóra stanie się gładka, miękka i pełna blasku. Zapraszamy do odwiedzenia naszej strony https://zielonelaboratorium.pl/składniki/pantenol/ i odkrycia tajemnic tego wspaniałego składnika kosmetycznego!

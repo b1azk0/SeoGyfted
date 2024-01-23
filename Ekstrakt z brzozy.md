@@ -1,0 +1,3 @@
+# [Ekstrakt z brzozy](https://zielonelaboratorium.pl/składniki/ekstrakt-z-brzozy/)
+
+Ekstrakt z brzozy to naturalny składnik, który od wielu lat cieszy się dużą popularnością w kosmetykach i suplementach diety. Jego właściwości pielęgnacyjne i prozdrowotne są nieocenione, dlatego też warto poznać je bliżej. Na naszej stronie https://zielonelaboratorium.pl/składniki/ekstrakt-z-brzozy/ znajdziesz pełne informacje na temat ekstraktu z brzozy - dowiesz się m.in. jakie są jego korzyści dla skóry, jak wpływa na układ moczowy czy też jakie ma zastosowanie w walce z cellulitem. Zachęcamy do zapoznania się z naszą stroną i skorzystania z wiedzy na temat tego cennego składnika!

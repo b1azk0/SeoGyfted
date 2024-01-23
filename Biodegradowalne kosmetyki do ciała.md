@@ -1,0 +1,3 @@
+# [Biodegradowalne kosmetyki do ciała](https://zielonelaboratorium.pl/biodegradowalne-kosmetyki-do-ciala/)
+
+Zapraszamy na naszą stronę, gdzie znajdziesz szeroką gamę biodegradowalnych kosmetyków do ciała. Nasze produkty, wykonane z naturalnych składników, są całkowicie bezpieczne dla Twojego ciała i dla środowiska. Dzięki naszym kosmetykom, możesz zadbać o swoją skórę, jednocześnie chroniąc planetę. Zapraszamy do odwiedzenia naszej strony, na której znajdziesz nasze najlepsze kosmetyki: https://zielonelaboratorium.pl/biodegradowalne-kosmetyki-do-ciala/

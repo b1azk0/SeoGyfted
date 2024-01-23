@@ -1,0 +1,3 @@
+# [Olej kokosowy](https://zielonelaboratorium.pl/składniki/olej-kokosowy/)
+
+Olej kokosowy to zdrowy i naturalny produkt, który warto mieć w swojej kuchni. Dzięki swoim właściwościom, olej kokosowy może pomóc w leczeniu chorób skórnych, zmniejszeniu poziomu cholesterolu oraz wzmocnieniu układu odpornościowego. Na stronie https://zielonelaboratorium.pl/składniki/olej-kokosowy/ dowiesz się więcej o zaletach stosowania oleju kokosowego oraz o tym, w jaki sposób można go wykorzystać w codziennej diecie. Znajdziesz tam także cenne porady dotyczące wyboru najlepszego rodzaju oleju. Zachęcamy do odwiedzenia tej strony i poznania właściwości oleju kokosowego.

@@ -1,0 +1,3 @@
+# [Olej jojoba](https://zielonelaboratorium.pl/składniki/olej-jojoba/)
+
+Olej jojoba to naturalny kosmetyk o wielu właściwościach pielęgnacyjnych. Dzięki swoim właściwościom nawilżającym i antyoksydacyjnym, jest idealny do pielęgnacji skóry i włosów. Chcesz dowiedzieć się więcej o tym naturalnym kosmetyku? Sprawdź już teraz naszą stronę zielonelaboratorium.pl/składniki/olej-jojoba/ i poznaj tajniki jego działania na twoją urodę i zdrowie!

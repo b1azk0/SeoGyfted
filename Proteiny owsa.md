@@ -1,0 +1,3 @@
+# [Proteiny owsa](https://zielonelaboratorium.pl/składniki/proteiny-owsa/)
+
+Szukasz skutecznego sposobu na uzupełnienie diety w białko? Spróbuj protein owsa! To naturalny i bezpieczny produkt, który dostarczy Ci niezbędnych aminokwasów i poprawi Twój metabolizm. Proteiny owsa to idealna propozycja dla sportowców, osób aktywnych fizycznie, jak również dla osób, które chcą zacząć zdrowo się odżywiać. Odwiedź https://zielonelaboratorium.pl/składniki/proteiny-owsa/ i przekonaj się o zaletach protein owsa już dziś!

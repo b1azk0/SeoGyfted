@@ -1,0 +1,3 @@
+# [PhytoCellTec](https://zielonelaboratorium.pl/składniki/phytocelltec/)
+
+PhytoCellTec to innowacyjna technologia, która pozwala na wykorzystanie komórek roślinnych w produkcji kosmetyków. Dzięki niej, skóra staje się bardziej elastyczna, nawilżona i odmłodzona. Jeśli chcesz poznać więcej na temat tej rewolucyjnej metody, koniecznie odwiedź naszą stronę Zielone Laboratorium, gdzie przeczytasz o wszystkich składnikach PhytoCellTec i ich działaniu. Kliknij w poniższy link, aby dowiedzieć się więcej: https://zielonelaboratorium.pl/składniki/phytocelltec/

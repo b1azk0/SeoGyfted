@@ -1,0 +1,3 @@
+# [Olejek bazyliowy](https://zielonelaboratorium.pl/składniki/olejek-bazyliowy/)
+
+Olejek bazyliowy to naturalny produkt o niezwykle intensywnym aromacie i korzystnym wpływie na nasze zdrowie. Dodawany do potraw, działa na naszą przemianę materii i przyspiesza trawienie. Olejek ten wykorzystywany jest również w aromaterapii, gdzie działa kojąco na nasz układ nerwowy i redukuje stres. Jeśli szukasz naturalnych sposobów na poprawę swojego samopoczucia, to świetnym wyborem będzie olejek bazyliowy. Zachęcamy do odwiedzenia strony Zielone Laboratorium, gdzie znajdziesz więcej informacji na temat tego cennego produktu. Kliknij tutaj aby dowiedzieć się więcej: https://zielonelaboratorium.pl/składniki/olejek-bazyliowy/

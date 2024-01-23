@@ -1,0 +1,3 @@
+# [Erytruloza](https://zielonelaboratorium.pl/składniki/erytruloza/)
+
+Jeśli interesujesz się zdrowym stylem życia, na pewno warto zwrócić uwagę na erytrulozę. Jest to doskonała substancja słodząca, która nie tylko nie podnosi poziomu cukru we krwi, ale także ma niski indeks glikemiczny. Dzięki temu idealnie nadaje się do stosowania przez osoby z problemami z cukrem oraz diabetyków. Na stronie https://zielonelaboratorium.pl/składniki/erytruloza/ znajdziesz wiele interesujących informacji na temat erytrulozy oraz jej zastosowania w kuchni. Dowiesz się, jakie korzyści ze sobą niesie stosowanie tej substancji, jak ją prawidłowo stosować oraz jakie produkty zawierają erytrulozę. Zachęcamy do odwiedzenia naszej strony i zapoznania się ze wszystkimi szczegółami!

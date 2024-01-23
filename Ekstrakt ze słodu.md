@@ -1,0 +1,3 @@
+# [Ekstrakt ze słodu](https://zielonelaboratorium.pl/składniki/ekstrakt-ze-slodu/)
+
+Poszukujesz naturalnego sposobu, aby nadać swojemu piwu wyjątkowego smaku i aromatu? Wypróbuj ekstraktu ze słodu, który jest jednym z najważniejszych składników piwowarskich. Dzięki jego dodaniu Twój trunek nabierze niepowtarzalnego charakteru, a Ty poczujesz się jak prawdziwy piwowar. Zapraszamy do zapoznania się z naszą ofertą i wybrania ekstraktu ze słodu, który najlepiej pasuje do Twoich potrzeb. Więcej informacji na temat jego właściwości i zastosowania znajdziesz na naszej stronie internetowej https://zielonelaboratorium.pl/składniki/ekstrakt-ze-slodu/.
